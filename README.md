@@ -1,1 +1,2 @@
 # PP1-TP4-CV-Chaperon-Maximo.
+Buenas profe, el cv original que adjunte es uno viejo pero que fui actualizando, con ese entre al mostaza que es mi trabajo actual. Tome cierta inspiracion pero quise hacer algo diferente esta vez. Quise que de verdad parezca un cv que se entrega en un trabajo, por eso no añadi colores extravagantes o algo asi, quise hacer algo sencillo dentro de todo. Creo que eso seria todo, muchas gracias nos vemos luego del receso.
